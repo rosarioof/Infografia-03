@@ -1,5 +1,5 @@
 # Infografia-03
-24|08|2020 Referente de Infografía
+24|08|2020 Referente de Infografía --> Valentina D'Efilippo
 
 Bibliografía:
 - http://www.valentinadefilippo.co.uk 
